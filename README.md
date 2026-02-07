@@ -9,5 +9,5 @@
 			" I get very awkward & nervous in first interactions, but I'm always happy to interact & roleplays with others! "
                   ,, Please do whisper if you wish to interact as I am AFK or Offtab most of the time''
 
-                                    [ Please 𝘋𝘕𝘐.ᐟ.ᐟ Navialette, Wriorinde & Panttore .ᐟ.ᐟ ]
+                                            [ Please 𝘋𝘕𝘐.ᐟ.ᐟ Navialette & Wriorinde .ᐟ.ᐟ ]
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ [Atabook!](https://agapanthus.atabook.org/) , [Strawpage](https://agapanthus.straw.page/)
