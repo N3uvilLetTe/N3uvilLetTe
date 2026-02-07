@@ -1,4 +1,4 @@
-				˖ ࣪.⭑ How ridiculous of me for wanting to understand others when even I refuse to understand myself ࿐🌧˚.
+				˖ ࣪.⭑ How ridiculous of me for wanting to understand others when I refuse to even understand myself ࿐🌧˚.
 ![6f9115136727c8c20ab891dbeb9a552f](https://github.com/user-attachments/assets/ecf97a68-ca74-4bc6-9072-c974f7af0803)
 
 
