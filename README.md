@@ -1,4 +1,4 @@
-						˖ ࣪.⭑ 𝙷𝚘𝚠 𝚌𝚊𝚗 𝙸 𝚌𝚑𝚘𝚘𝚜𝚎 𝚝𝚘 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍 𝚘𝚝𝚑𝚎𝚛𝚜 𝚠𝚑𝚎𝚗 𝙸 𝚍𝚘 𝚗𝚘𝚝 𝚞𝚗𝚍𝚎𝚛𝚜𝚝𝚊𝚗𝚍 𝚖𝚢𝚜𝚎𝚕𝚏. ࿐🌧˚.
+				˖ ࣪.⭑ How ridiculous of me for wanting to understand others when even I refuse to understand myself ࿐🌧˚.
 ![6f9115136727c8c20ab891dbeb9a552f](https://github.com/user-attachments/assets/9e2a3526-a505-4f8d-9725-a4050d9477ba)
 
 
