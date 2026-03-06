@@ -14,5 +14,5 @@
 	
                                       [ Please 𝘋𝘕𝘐.ᐟ.ᐟ Kaeluc, Navialette & Wriorinde .ᐟ.ᐟ ]
 
-									  			 ‎ 	(pfp & banner by me)
+									  			 ‎ 	(artworks made by me)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎[Atabook!](https://agapanthus.atabook.org/) , [Strawpage!](https://agapanthus.straw.page/) , [Discord!](https://discord.com/users/818112078153383977) , [Roblox!](https://www.roblox.com/users/2866175649/profile)
