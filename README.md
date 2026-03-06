@@ -1,4 +1,4 @@
-			˖ ࣪.⭑ How ridiculous of me for wanting to understand others when I refuse to even understand myself ࿐🌧˚.
+	    		  		˖ ࣪.⭑ I want nothing more to do in this world other than to keep creating. ♡ ࿐🌧˚.
 
 ![uhhhh](https://github.com/user-attachments/assets/63bf85e3-c6c1-481e-92c0-9c5b65d0b0a3)
 
