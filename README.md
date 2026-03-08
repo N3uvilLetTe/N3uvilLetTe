@@ -8,7 +8,7 @@
 	‎  					     		   			 	𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
 							[ Wriolette, Zhonglette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
 							
-   		   	 	" I'm a bit awkward & prefer to sit in silence, but I'm always happy to interact with others! "
+   				   	 	 " I'm a bit awkward & quiet, but I'm always happy to interact with others! "
 						" I draw and do art commissions if anyone is interested ^_^ (check my straw!) "
                              	        ,, W2I as I am AFK / Offtab most of the time''
 	
