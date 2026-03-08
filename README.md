@@ -4,15 +4,15 @@
 
 
 
-									 ⊹₊˚‧︵‿₊୨「 ✦ 𝓐𝓰𝓪𝓹𝓪𝓷𝓽𝓱𝓾𝓼/𝓨𝓾𝓲 ✦ 」୧₊‿︵‧˚₊⊹
+						   		     ⊹₊˚‧︵‿₊୨「 ✦ 𝓐𝓰𝓪𝓹𝓪𝓷𝓽𝓱𝓾𝓼/𝓨𝓾𝓲 ✦ 」୧₊‿︵‧˚₊⊹
 	‎  					     		   			 	𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
-							[ Wriolette, Zhonglette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
+					 	  [ Wriolette, Zhonglette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
 							
-   				   	 	 " I'm a bit awkward & quiet, but I'm always happy to interact with others! "
+   				   " I'm very awkward & quiet, but I'm always happy to interact/make friends with others! "
 						" I draw and do art commissions if anyone is interested ^_^ (check my straw!) "
                              	        ,, W2I as I am AFK / Offtab most of the time''
 	
                                          [ Please 𝘋𝘕𝘐.ᐟ.ᐟ Kaeluc & Wriorinde .ᐟ.ᐟ ]
 
-									  			 ‎ 	(artworks made by me)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎
+									  		 ‎ 	   (artworks made by me)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎
 ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎[Atabook!](https://agapanthus.atabook.org/) , [Strawpage!](https://agapanthus.straw.page/) , [Discord!](https://discord.com/users/818112078153383977) , [Roblox!](https://www.roblox.com/users/2866175649/profile)
