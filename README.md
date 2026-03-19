@@ -6,7 +6,7 @@
 
 						   		     ⊹₊˚‧︵‿₊୨「 ✦ 𝓐𝓰𝓪𝓹𝓪𝓷𝓽𝓱𝓾𝓼/𝓨𝓾𝓲 ✦ 」୧₊‿︵‧˚₊⊹
 	‎  					     		   			 	𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
-					 	  [ Wriolette, Zhonglette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
+		  	   	     [ Wriolette, Zhonglette, Knavelette, Capittore & Focalette/Neuvifuri please 𝘐𝘕𝘛.ᐟ.ᐟ ]
 							
    				   " I'm very awkward & quiet, but I'm always happy to interact/make friends with others! "
 						" I draw and do art commissions if anyone is interested ^_^ (check my straw!) "
