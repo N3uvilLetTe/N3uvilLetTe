@@ -12,7 +12,7 @@
 						" I draw and do art commissions if anyone is interested ^_^ (check my straw!) "
                              	        ,, W2I as I am AFK / Offtab most of the time''
 	
-                                         [ Please 𝘋𝘕𝘐.ᐟ.ᐟ Kaeluc & Wriorinde .ᐟ.ᐟ ]
+                                          [ .ᐟ.ᐟ I block/hide people freely .ᐟ.ᐟ ]
 
 									  		 ‎ 	   (artworks made by me)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎
 ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎[Atabook!](https://agapanthus.atabook.org/) , [Strawpage!](https://agapanthus.straw.page/) , [Discord!](https://discord.com/users/818112078153383977) , [Roblox!](https://www.roblox.com/users/2866175649/profile)
