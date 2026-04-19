@@ -10,7 +10,7 @@
 							
    				   " I'm very awkward & quiet, but I'm always happy to interact/make friends with others! "
 						" I draw and do art commissions if anyone is interested ^_^ (check my straw!) "
-                             	        ,, W2I as I am AFK / Offtab most of the time''
+                             	   ,, AFK most of the time | delayed replies to whispers ''
 	
                                           [ .ᐟ.ᐟ I block/hide people freely .ᐟ.ᐟ ]
 
