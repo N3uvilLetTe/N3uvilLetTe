@@ -9,10 +9,10 @@
 		  	  	  	  	  	        [ Wriolette, Zhonglette & Capittore please 𝘐𝘕𝘛.ᐟ.ᐟ ]
 							
    				   " I'm very awkward & quiet, but I'm always happy to interact/make friends with others! "
-						" I draw and do art commissions if anyone is interested ^_^ (check my straw!) "
-                             	   ,, AFK most of the time | delayed replies to whispers ''
+						" I draw and do art commissions if anyone is interested ^_^ (check my carrd!) "
+                                 ,, AFK most of the time | delayed replies to whispers ''
 	
                                           [ .ᐟ.ᐟ I block/hide people freely .ᐟ.ᐟ ]
 
-									  		 ‎ 	   (artworks made by me)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎
+									  	 ‎ 	       (artworks made by me)‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎	 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎  ‎ ‎  ‎ ‎ ‎ ‎‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎
 ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎  ‎ ‎ ‎ ‎  ‎   ‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎  ‎ ‎ ‎   ‎ ‎[Atabook!](https://agapanthus.atabook.org/) , [Strawpage!](https://agapanthus.straw.page/) , [Discord!](https://discord.com/users/818112078153383977) , [Roblox!](https://www.roblox.com/users/2866175649/profile)
