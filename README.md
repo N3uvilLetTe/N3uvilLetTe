@@ -8,7 +8,7 @@
 	‎  					     		   			  	 𝘏𝘦/𝘛𝘩𝘦𝘺 | 𝘈𝘨𝘦𝘯𝘥𝘦𝘳
 		  	  	  	        	                [ Wriothesley 𝘐𝘕𝘛 I BEG.ᐟ.ᐟ ]
 							
-   				   " I'm very awkward & quiet, but I'm always happy to interact/make friends with others! "
+   			  	         " I'm very awkward & quiet, but I'm always happy to interact with others! "
 						" I draw and do art commissions if anyone is interested ^_^ (check my Vgen!) "
                                    ,, AFK most of the time | delayed replies to whispers ''
 	
